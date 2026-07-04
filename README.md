@@ -1,2 +1,0 @@
-# sathwik
-church of christ
